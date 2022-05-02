@@ -8,3 +8,5 @@ Let's go Birdwatching [Twitter](https://www.instagram.com/diversitydepthstudios/
 Shop for very Useful Products.....For You. [Redbubble](https://github.com/RCJonesIntrotoWebDev/Final-Project/edit/gh-pages/index.md)
 Here's where we launch all of our Direct to VHS productioins [YouTube](https://www.youtube.com/channel/UCUA4OUB470PR-6ITxqy0Zxw)
 And last and not least, our website. [DiversityDepthDotCom](https://sites.google.com/view/diversitydepth-studios/home)
+
+Thank you world! Get out of this webpage and check out our social media!
